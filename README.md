@@ -1,5 +1,5 @@
 # Hi there! therealrstu here
-#### I'm a Animator, Designer and Software Developer
+#### I'm an Animator, Designer and Software Developer
 ---
 
 A human who can make an animation, design, and software.
